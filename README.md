@@ -1,2 +1,0 @@
-# Fencing-
-School purpose 
